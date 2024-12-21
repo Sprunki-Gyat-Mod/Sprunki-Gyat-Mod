@@ -7,8 +7,9 @@ Step into the world of **Sprunki Gyat Mod**, a revolutionary music creation plat
 Ready to embark on a magical musical journey? Dive in and start creating your own masterpiece today.
 
 - [Play Sprunki Gyat Mod](https://sprunkisinner.org/sprunki-gyat)  
-- [Explore Sprunki Corruptbox 3: Infected War](https://sprunkicorruptbox.com/sprunki-corruptbox-3-infected-war)  
-- [Discover Corruptbox 2 but Sprunki](https://sprunkicorruptbox.com/corruptbox-2-but-sprunki)  
+- [Corruptbox 3 x Sprunki](https://corruptbox.com/corruptbox-3-x-sprunki)  
+- [Corruptbox 2 but Sprunki](https://corruptbox.com/corruptbox-2-but-sprunki)
+- [Corruptbox but Sprunki](https://corruptbox.com/corruptbox-but-sprunki)
 
 ## **What is Sprunki Gyat Mod?**
 
